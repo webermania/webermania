@@ -1,1 +1,1 @@
-Canot stop touching it
+Cannot stop touching it
